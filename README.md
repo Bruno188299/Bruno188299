@@ -43,5 +43,4 @@ Me considero um Dev dedicado e focado no aprendizado, sempre buscando por novos 
 Disponível para Freelancer
 
 ## Entre em contato:
-- E-mail - kauasousa2810@gmail.com<br>
-- Whatsapp - (11) 95373-6849
+
